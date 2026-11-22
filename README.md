@@ -1,1 +1,1 @@
-# Sarvgya-Conculting
+# Sarvgya-Consulting
